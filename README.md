@@ -4,6 +4,7 @@
 **xl1206/XL1206** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
+![Uploading 1757575160211.jpeg…]()
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...

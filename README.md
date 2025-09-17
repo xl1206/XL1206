@@ -1,10 +1,12 @@
-## 只是一个初学者
+## 只是一个初学者![1757575160211](https://github.com/user-attachments/assets/2fc16902-c40f-45c4-a894-82218718dfe5)
+
 https://github.com/xl1206/XL1206/blob/main/1757575160211.jpeg
-<!--
+<!--![1757575160211](https://github.com/user-attachments/assets/35703e81-b25f-45b4-a516-37fdf407d25d)
+
 **xl1206/XL1206** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-![Uploading 1757575160211.jpeg…]()
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...

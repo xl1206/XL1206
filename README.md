@@ -1,4 +1,4 @@
-## Hi there 👋
+## 只是一个初学者
 
 <!--
 **xl1206/XL1206** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

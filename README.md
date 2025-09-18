@@ -1,4 +1,5 @@
 ## 只是一个初学者
+![Uploading 1757575160211.jpeg…]()
 
 https://github.com/xl1206/XL1206/blob/main/1757575160211.jpeg
 <!--![1757575160211](https://github.com/user-attachments/assets/35703e81-b25f-45b4-a516-37fdf407d25d)

@@ -1,5 +1,6 @@
-## 只是一个初学者
-https://github.com/xl1206/XL1206/blob/main/1757575160211.jpeg
+ 只是一个初学者
+![1757575160211](https://github.com/user-attachments/assets/9bbedd1f-9fe9-49cf-b600-ef95e97a5a4a)##
+
 <!--![1757575160211](https://github.com/user-attachments/assets/35703e81-b25f-45b4-a516-37fdf407d25d)
 
 **xl1206/XL1206** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

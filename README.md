@@ -1,5 +1,8 @@
- 只是一个初学者
-![1757575160211](https://github.com/user-attachments/assets/9bbedd1f-9fe9-49cf-b600-ef95e97a5a4a)##
+希望晚风能替我吹散你的忧愁，月光能替我治愈你的心灵，夜晚能替我分担你的疲惫，愿你唤起热爱，重拾微笑
+![1757575160211](https://github.com/user-attachments/assets/9bbedd1f-9fe9-49cf-b600-ef95e97a5a4a)
+<img width="1052" height="1870" alt="1757575071436" src="https://github.com/user-attachments/assets/df9d63f2-6001-46c6-858a-5155a21ce657" />
+![1757575326725](https://github.com/user-attachments/assets/0ec7926b-7656-4a9d-a48d-ca833ba0daf9)
+![1757575183474](https://github.com/user-attachments/assets/867a8962-4cdc-4eb6-8101-388e75b046f8)
 
 <!--![1757575160211](https://github.com/user-attachments/assets/35703e81-b25f-45b4-a516-37fdf407d25d)
 
